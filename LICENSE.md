@@ -1,4 +1,4 @@
-#  
+#  Enhance Evernote for macOS with professional Utility for Evernote for macOS - cloud backup and collaboration, the #1 utility. Includes cloud backup and collaboration for a
 
 
 
